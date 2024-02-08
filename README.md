@@ -1,5 +1,5 @@
 - 👋 Hi, I’m amari parris
-- 👀 I’m interested in Data Analytics & Investing
+- 👀 I’m interested in Data Analytics Private Equity, and Investing
 - 📫 How to reach me kendallparris13@gmail.com
 
 <!---
